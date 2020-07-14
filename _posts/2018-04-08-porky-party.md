@@ -1,5 +1,4 @@
 ---
-layout: post
 title: "Porky Party (The Book of Acts)"
 ---
 
