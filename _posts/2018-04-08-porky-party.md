@@ -1,5 +1,5 @@
 ---
-title: "Porky Party (The Book of Acts)"
+title: 1 Porky Party (The Book of Acts)
 ---
 
 Chris: “Look you scoffers, marvel and vanish away because I am doing a work in your days, a work that you will never believe, even if someone were to explain it to you.” Acts 13:41
@@ -262,3 +262,201 @@ Chris: And I feel like we would have heard about that.
 Benito: Yeah, I feel like we would have. 
 
 Chris: So Peter’s full communism. Like full on sell your land, let's get going comrades. Apostles of the world unite. And everybody's pretty into this. Stephen’s pretty into it. So into it, that he gets stoned.
+
+Benito: Yeah, but you know, not that kind of stoned. Stephen is an interesting character in that like, he's not a thing before this. Like who is Stephen? I don't know. Well he suddenly shows up, he's one of these seven deacons basically, that are chosen by the apostles to be these other ministers. Stephen, a man full of faith and the Holy Spirit. And then all these other guys. And Stephen gets accused of blasphemy. He gives a big speech, it’s the longest speech in the entire book of Acts. Stephen gets more floor time then even Paul or James, who speaks later, and then they throw rocks at him until he is dead. Which makes him the first Christian martyr. That’s what he’s largely remembered for. He only appears in this basically one chapter. A chapter and some change in Acts. 
+
+Chris: Well in the special edition he’s going to be a force ghost. 
+
+Benito: Oh absolutely. Yeah. This is the Saint Stephen that we remember on December 26th, right, if you remember Good King Wenceslas looked out on the Feast of Stephen, that's this guy. I did want to note I have a somewhat personal connection to Stephen, in that when I was 10 or 11 years, probably 10, I sang a song in church all about Stephen, and it has stuck with me. It was not like a hymn, or anything, it was not a traditional song, it was what could very easily be called a contemporary Christian song. Not at all a Christian rock song, do not be confused, this was a song by guy named Ray Boltz, who I probably, his biggest hit song was one called “Thank You”, which is a weird kind of, like, self-congratulatory song about a guy who dreams he goes to Heaven, and all these people come up and are like “Oh, you taught my Sunday school and you saved my life I'm in Heaven cuz of that” like that's the premise of the song. He also wrote a song called, very excellently, “I Pledge Allegiance to the Lamb”. Not a common song, actually, but this song is called “Someone Stood Up for Stephen”, and so it's one of those that like, still pops up in my head. It does the the whole story of like, getting stoned, and the sky opens up and the clouds rolled away, someone saw Stephen, and then someone stood up for Stephen because Stephen stood up for him.
+
+Chris: Aw that’s a very good personal testimony. So here’s the thing I like about the bit about Saint Stephen, the first Christian martyr. He dies. He gets - they throw rocks at them until he’s dead, but I like the bit right after that, because it’s totally like dude turning towards the camera, cuz the next sentence after the death of Stephen is “Saul agreed with putting him to death.” So it’s like “Oh hey, Saul, remember him.” 
+
+Benito: We straight up transition from like “Here's this guy we just introduced him, and we killed him off immediately, but we really did that so that we can pan up and you can see the guy standing on the edge, like, nodding approvingly. By the way, he’s gonna get the character arc, he’s the main character of this book actually. We’re 8 chapters in, but he's the actual main character of this book.” 
+
+Chris: Here’s Darth Saul, with his double-bladed lightsaber, that he is going to be using to breathe murder against the the Christian. But before we get into more Saul story, we take a little detour to Simon Magus. 
+
+Benito: Yeah, boy, so - 
+
+Chris: One paragraph. He exists in one paragraph. I guess it’s more than one paragraph. He’s in Acts 8:9 through 8:25. That is it. 
+
+Benito: That's it. We see him, they introduced him, and they say “hey there’s this guy Simon, he was a Sorcerer, by the way, he's a Christian now, but he was a sorcerer” and the main thing that was in the canonical Bible, there's one thing that he does, and basically he tries to bribe his way to Holy Spirit powers. He's like “how much will it cost for me to get that good good tongue of flame” and for that his name, you know if we're strictly following the Canon, he inspires the sin that is known as simony. Named after him. So it’s just “Simon” with a “y” on the end of it. Simony. And the idea is you try to pay for a higher position in the church, right, if you were like how much is it, you know, if I slip you a $20 could I be in Archbishop or whatever. Right, like, that would be the idea. 
+
+Chris: You're going to want to remember that if you ever study, let's just say, the period between like 800 AD and, about like the, charitably, we’ll say the 20th century. 
+
+Benito: Yeah there’s no shortage of simony, especially among popes in the Middle Ages. Yeah. 100%. 
+
+Chris: Probably the big one's going to be your Alexander the Sixth. On that front. The Borgia boys.
+
+Benito: Yeah a couple of notable ones there. That’s what we see of him in the Bible. Of the canonical scriptures, that's it. However, like, his name stands out to us. Like people know the name Simon Magus to the point where he fought the Justice League, right, Simon Magus fought the Justice League.  You don't just pick a guy who tried to buy superpowers. He appears in like 16 verses, and then you're like, “yeah that's the guy I want to fight the Justice League”. No, because Simon Magus is a much bigger deal once you look outside of the canonical scriptures. We will come back to him. We’re gonna put a little pin, a little pin in that boy right now, we’ll come back to him because we have plenty more to say about Simon Magus, but I did want to point out, like I said in the beginning, we were talking about the book. He’s not the only evil wizard in the book. Like he doesn’t even do wizard stuff. He tries to do bribery, which is the worst spell I've ever seen. Like they don't even teach it at Hogwarts. Like I don't know. Like the cool thing is, like I was saying earlier, Simon Magus is not even the only evil wizard in the book. We get to see Peter confront Simon Magus here in chapter 8, but then later in chapter 13 we see Paul confront his own evil wizard, whose name even means “evil wizard” so pretty good and convincing from Chapter 13 Verse 8 “But Elymas the sorcerer (this is the meaning of his name) opposed them and tried to turn the proconsul away from the faith. Then Saul, also called Paul, stared straight at the sorcerer and said ‘You son of the Devil, full of all deceit and all fraud, enemy of all righteousness! Won’t you ever stop perverting the straight paths of the Lord? Now, look! The Lord’s hand is against you. You are going to be blind, and will not see the sun for a time.’ Suddenly a mist and darkness fell on him, and he went around seeking someone to lead him by the hand.” So he blinds a guy.
+
+Chris: That sounds an awful lot like the last bit of “Witches Invitation” to me. Minus the blinding.
+
+Benito: Yeah, it sure does. Do you think Elymas the Sorcerer had Dungeons & Dragons in his house? I don't know. 
+
+Chris: Probably so, and a ouija board.
+
+Benito: He probably did. 
+
+Chris: Now you brought something up that I was very frustrated with, even reading the HCSB, which is a modern translation, that’s still being updated and gone through and which is that everybody’s got two names, but there're only like eight names total. 
+
+Benito: Yeah it's true that there were a number of very common names, especially Hebrew names. Like there's so many guys named Judas, it’s really weird and like, unfortunate that Judas is also the name of, like, the biggest human villain of the New Testament, because as we saw, it's also the name of another Apostle. 12 Apostles but there's only like 6 names among those 12 guys because there's two Simon's, right, our boy Simon The Rock Peter, there's two, well once Matthias joins, I mean that's “Matthew”, right, there’s two Matthews, there’s two Judases, you know sometimes you end up with - there’s two Jameses, and so that’s part of the reason why you get “so-and-so, also called so-and-so”, right, part of the reason is that what really was going on there in most cases, Peter was the exception we’ll come back to that in a second, in most of those cases what's going on is those people have a Hebrew name, and that name could be John, or James, these are the Anglicized versions of Hebrew names like “Yohanan” and “Ya’aqov”, right, but you have John or James or Simon those are Hebrew names. But because Judea was part of the Roman Empire at this time, many of the people also had Greco-Roman names, so they might have a Greek name like Andrew or Phillip. Those are Greek names, or they might have a Latin name. like in the case of John Mark, right, “John also called Mark” John would be his Hebrew name. “Mark” is “Marcus”, right almost quintessentially Roman name, and so probably the key example is Paul, right, who kind of takes over the book coming up here pretty soon, he's famously known as “Saul” when we first see him, very soon they refer to him as “Paul” and in a lot of places, you might see people say that that is an indication of his transition from Pharisee, where we see him at the beginning, to after his conversion, he starts going by “Paul” which first of all, that doesn't make any sense. Why would he do that? Why would he be like “Well I’m a Christian now, so I'm going to make my name a thing that rhymes with my real name”? I don't know. And it also doesn't line up with the chronology. So Saul is a Hebrew name, it's the name of the first king of Israel. King Saul. And Paul is a Roman name, right, it’s Latin. “Paulus”. It's the name that then gives us like “Pablo”, right. And so he probably, in that case, he probably chose Paulus as his Roman name, possibly because it sounds similar to Saul, but what we actually see is he starts using Paul not when he becomes a Christian, but rather when his mission turns outward to communicating to Gentiles, right, trying to spread the message to the Greeks. And so when he’s trying to effectively communicate with Greeks, he starts using his Greek name. That makes sense, right?
+
+Chris: I guess we need to get to get to Paul, because this is a story so important that it is told, in its entirety, twice in the span of about eight pages. 
+
+Benito: Three times, all told. Three times, we get the origin recap of Paul on the road to Damascus, which makes me ask the question “Was this book edited by Jim Shooter?” Every chapter could be someone's first chapter. 
+
+Chris: It is pretty weird, cuz I don't think, even though we've been at this for like an hour now, I don't feel like people usually, like, leave off in the middle of books of the Bible, and need to come back and be like “hey everybody, just to bring you up, Paul is on the road to Damascus and was struck blind.” 
+
+Benito: And it was Jesus. Jesus was the light, and then he saw the error of his ways during the time period in which he could not see anything else. Three times we see that story. 
+
+Chris: So this is a pretty famous story, this is every face-turn, every villain giving it all up and deciding to be a hero is usually referred to as a “Damascus moment”, sometimes even canonically. If you come from comics like we do, famously, Emma Frost in the grimoire [unintelligible] on X-Men refers to becoming a good guy as her “Paul on the road to Damascus moment”. Now here’s what's weird about Paul. It says, shortly before this, in fact it's the first part of - it’s chapter 9 verse 1 “Meanwhile, Saul was still breathing threats and murder against the disciples of the Lord.” Which is a great opening sentence for a new chapter. This may be the finest use of “meanwhile” I’ve ever heard.
+
+Benito: “Meanwhite, back at the bat cave, Saul was breathing threats! And murder!”
+
+Chris: Saul is pretty super into persecution of early Christians. He gets equally into the Lord, like in about five minutes. I guess it’s probably like a hour. It's a long road from Damascus. 
+
+Benito: Yeah he is definitely one of those guys that, like, moves from obsession to obsession for sure, right, like he is pretty hardcore into the persecution of Christians. We do learn later that he is a member of the Pharisees, the guys who were kind of in a way the major villains of the gospels. The Pharisees, they were religious sect, arguably also a political party, at this time. Their main thing was strict adherence to the law, right, and so that's why they didn't like Jesus, because Jesus was like “Hey whatsup it's all about faith. The law, you'll follow the law if your faith is there.” They didn't care for that, that was kind of like, their major thing. We learn that Paul is a Pharisee, so he would have been super into strict and conservative interpretations of the Jewish religion. We also learn, significantly, that he is a Roman citizen, which he would have earned through his father or his grandfather, or something, who would have earned this citizenship through some favor of, you know, the emperor or something like that. 
+
+Chris: So this leads to my favorite part of the book of Acts, even more favorite than Judas exploding, even more favorite than the set up of evil wizards that’s gonna come back in the expanded universe. Paul is super into whatever he's doing, he’s like “Yes, throw more rocks at Stephen. Thank you. I'm going to breathe some threats and murder. Let's do this.” He becomes a Christian and then immediately is like, “everybody, y’all need to get into Jesus” and starts like, going around basically yelling at people about that.
+
+Benito: Yeah, the entire world. He goes around basically the entire known world at that point, yeah.
+
+Chris: To the point where other Jews are like “Hey, you need to stop, because we don't believe that Jesus was the Messiah, like this is wrong, you are basically spreading heresy.” And he's like “well, I want to be tried by Romans, then, I’m Roman, it’s my right to be tried in a court. So if you wanna take this to court, let’s go to court.” And they do. And so we get my favorite character in the Bible thus far, which I believe is probably gonna be a recurring segment. And that is Festus. Festus rolls up, he’s a judge, and he has heard that someone has committed crimes that requires the intervention of a Roman judge. Now Benito you would be more familiar with this than I am, is this like a rare event that like, a judge would have to, like, sit down and hear a crime? Because it seems like he is coming to specifically to address this from another place. Like he doesn't know what's been going on in Judea. 
+
+Benito: No, he would be in Judea. He's actually a little bit more than a judge, he’s the full-on magistrate. He's basically the governor. The Roman governor of Judea, at this point. Like he is the second one that Paul encounters. The first one is, he’s first taken to trial in front of a guy named Felix, but Felix basically gets fired because he does a terrible job. Like his main job is to moderate disagreements between Romans and Jews, right, and he does a bad job of that, so he gets fired, and he gets replaced by your boy Festus. So he’s considerably higher than a judge. He’s basically the Roman governor of Judea at this time. So it's a pretty big deal, and the only reason he gets brought in, is because of the fact that Paul has that Roman citizenship. Otherwise they would literally - if he were just a Judean, they would literally, if he were on trial, they would beat him. They would whip him before he could give testimony which is the thing that Romans used to do with slaves no matter what, because they always assumed that is slave or a non-citizen, would be a hostile witness, and they would need to be tortured in order to give true testimony. So they almost do that to him, and then he’s like “hold up y'all, Roman citizen right here” and they were like “ohhhh snap” and they'd get to take him to Festus. So yeah.
+
+Chris: So Festus rolls up, and apparently all he’s heard is there is a crime committed by a Roman citizen that requires his intervention. 
+
+Benito: Yeah, and he naturally assumes, he’s like, ohhhh someone is fomenting Revolution, someone is - 
+
+Chris: Yeah like we’ve got like, revolution, we’ve got like, sedition, we’ve got a serial killer
+
+Benito: And that’s a complete natural thing for him to think at this point in history, right, like if you seen “The Life of Brian” the jokes there about the United People's Front of Judea and all that stuff that's all real, right, all these like competing, different factions of people who want to rebel against the Romans, like here we're only few years out from like, the real for real Jewish Revolution that’s ultimately overthrown by the emperor Titus. Like that's coming up right in 70 AD. So we're here in the early 60s, so we're not far away from that, so it’s completely normal for Festus to assume that they're bringing in a revolutionary leader.
+
+Chris: So Festus hears the case, and then he goes to talk to some friends of his. And look. We say at the top of every show, we are nonbelievers. And I think because of that, I think we are at an understanding where the Bible is not necessarily the most reliable source of historical accuracy, because it's a sacred text. It's a religious text, that's what it's focus is on. There is nothing that has made me - there is nothing that has seemed as accurate as what Festus says -
+
+Benito: It's Agrippa. So that’s Herrod Agrippa. He’s the King. He's the King of Judea, basically. He's the son of Herrod from the Christmas story. Right.
+
+Chris: From the massacre of the innocents. 
+
+Benito: Yeah that guy. So this is his son, and his wife is Bernice. 
+
+Chris: So Festus goes and talks to his friends, who are some Romans named Agrippa and Bernice. So Festus is like coming through, and he stops and he talks to them. I don't think we get, like, the actual part of Festus hearing about the [unintelligible] like hearing the case, we just get him talking about it. And he goes “Alright, so get this. I was brought in to hear a crime, like, you know, murder, and instead they were basically debating their whole religion, and it seemed to center on this guy Jesus, who’s dead, but this guy Paul says he's alive. I don't know what to do with this. None of this is actually legal.” 
+
+Benito: It's the best thing, because he's going in and - quick correction sorry - Bernice is Agrippa’s sister, not his wife, okay anyway - that one was on me sorry, but anyway. Yeah, he comes in and he’s like “I'm expecting a revolution, instead, it's a group of guys and a guy arguing about whether a different guy is dead or alive. This guy Jesus.” His questions are, he's like “I have two questions, one, who is Jesus, two, why does anyone care?” 
+
+Chris: Here’s the way it’s actually phrased in the book of Acts chapter 25 verse 19 “Instead they had some disagreements with him about their own religion and about a certain Jesus, a dead man Paul claimed to be alive.” I love this because I find early Christianity very fascinating. My wife has a degree in the study of early Christianity. But I love this dude, who’s showing up, after Jesus, and has never heard of it, and he just rolls up and he's like “yeah…” like he's very confused by the entirety of this weird commune, and dudes talking about this dead guy who may or may not be alive. This dude who was recorded to be executed by the Roman Empire, but then this other, this Paul, who’s I'm sure shouting at him, is talking about how he is alive, and probably being like “nonono you don’t understand, I went blind!” 
+
+Benito: Yeah, and he gets so mad. Paul goes “I demand to see Caesar, I gotta see Caesar, Caesar or nobody. Caesar or no one.” And then later, they're like “if he had not said Caesar’s name, he would be free right now, but we gotta send him to Rome, because he demanded it.”
+
+Chris:  Right, like he's about to hand out “not guilty, no crime has been committed” and instead my dude is like “take me to the emperor it’s my right” 
+
+Benito: Right he’s got it written down, he’s got N-O-T G-U-I-L-T- and is in the middle of the Y and Paul’s like “Caesar please” and he’s gotta crumple up the paper and toss it in the fire.
+
+Chris: It’s just so great because I love the fact that this is not, you know, we don't see the trial scene, this is not Festus making an announcement to the apostles, this is not Festus speaking directly to Paul. This is Festus with his bros being like “you will not believe what happened at work today”, and that's the most relatable thing in the book of Acts. Is a guy going to work and somebody's yelling at him and he doesn't know why. Festus is setting the mark to beat.
+
+Benito: For sure, he’s good. Oh I forgot, I have a very good fact that I think will endear Festus to you even more, that I wanted to mention. Guess what his name means. 
+
+Chris: I assume it has something to do with the word “festering”, is it the same root?
+
+Benito: “Festering”? No the word you should be thinking of is “festival”, or “fiesta”, those are the related words you should be thinking of. 
+
+Chris: Is his name “party dude”? 
+
+Benito: It is “party dude”.
+
+Chris: Party Dude is my favorite dude in the Bible, it's like, it's going to take a lot to beat him. I mean I know eventually we’re going to be reading about the literal son of God, but Festus is pretty tight.
+
+Benito: We also see Romans at this time would have had three names, we don't know what his first name is. We see that his family name is “Porcius” well “Porcius” is the clan name, “Festus” is a family name. His name is “Porky Party Dude”. Porky Party Dude, is his name. Yeah he’s pretty good.
+
+Chris: So the rest of the book, basically like Paul. Is like, is his journey to Rome to go talk to Caesar. And you know the ship gets wrecked because there's a storm, and Paul’s like, “don't worry, I know we've been trapped on the Sea of Galilee for a while, but you guys go ahead and eat your food, the Lord is going to provide.” And then they go to Malta, and everybody's nice. 
+
+Benito: Right. So yeah this is traditionally considered to be Malta, because in Greek it is referred to as “Melite” and so we go “oh this must be Malta”, except like geographically it doesn’t quite work out, but whatever, it's fine. It doesn't matter. But I did want to mention something about the trip to Malta because of something very interesting. We have here in chapter 28, verse 3, we're on Malta after the ship has wrecked. “As Paul gathered a bundle of brushwood and put it on the fire, a viper came out because of the heat and fastened itself to his hand. When the local people saw the creature hanging from his hand, they said to one another, “This man is probably a murderer, and though he has escaped the sea, Justice does not allow him to live!” However, he shook the creature off into the fire and suffered no harm. They expected that he would swell up or suddenly drop dead. But after they waited a long time and saw nothing unusual happen to him, they changed their minds and said he was a god.” 
+
+Chris: These people are very quick to jump to conclusions. 
+
+Benito: They really are. But do you know what we have just witnessed, just now in that passage, what we just saw? 
+
+Chris: I do. We have witnessed the first appearance and origin of snake handling. 
+
+Benito: That is the birth of snake church. We just saw it. That passage right there is exactly the reason that modern-day super fundy guys, they fully believe that they can handle a snake and even get bitten by a snake, and they'll not be not be harmed because of their extreme faith in Christ. Just like our boy Paul. This passage is the birth of snake church. 
+
+Chris: So Paul ends up going to see Caesar. We don’t get that here. That's going to be - again, that's in the expanded universe, but he rents a house, he stays two years, and he proclaims the kingdom of God and the teaching of the things concerning the Lord Jesus Christ in full boldness and without hindrance. And this is after we get an update on the book of Isaiah which we also see in Matthew 13:14. It’s drawn from Isaiah 6:10, it comes back here, in the final book of Acts, which is book 28 verse 27, “The Holy Spirit correctly spoke through the prophet Isaiah to your ancestors when He said, ‘Go to these people and say: You will listen and listen, yet never understand; and you will look and look, yet never perceive. For the hearts of these people have grown callous, their ears are hard of hearing, and they have shut their eyes; otherwise they might see with their eyes and hear with their ears, understand with their heart, and be converted, and I would heal them.’” It is one of those chapters like John 3:16, like the fool has said in his heart there is no God, that is one that often gets brought up in a very weaponized scripture sort of way by people attempting to convert you, which is that you know, if you would just open your heart, you'd let him in, as though it's your fault for not hearing it correctly. 
+
+Benito: Yeah, and that’s essentially the message from when Isaiah, in Isaiah these are the words of God to Isaiah, like “look man I'm assigning you this message of judgment and punishment and the people are not gonna like it, so you should be prepared for that”, and so that's the parallel here, right, Paul’s message as well is one where he's going to have some difficulty spreading it, it's going to be things that people don't want to hear.
+
+Chris: It seems again, we're getting a pretty good picture of Paul. He’s a dude who’s super into it, like he's very extra, he's going to go zero to a hundred, he's going to get himself into trouble, and then if you don't like it well then, that’s your problem, I’m just asking questions, that's your problem. You need to open your eyes and your ears, because I’m just telling you the word. That’s Paul. Which, I was having a conversation with somebody who was like “yeah I don't like Paul” because the first thing we see him do is, he’s telling people how to worship God and telling them they're getting it wrong. He's struck blind, and then when he recovers he's like, back to telling people how to worship God and they’re doing it wrong. Yeah, he's an extreme dude.
+
+Benito: As we get more into modern times, I think Paul is experiencing a pretty significant critical re-evaluation, and he's not coming out the better for it, I think. 
+
+Chris: Paul is exactly the dude who would invite you to a pizza party. To a porky party.
+
+Benito: He’d be throwing the pizza party. The ending seems a little bit strange, right, because we know that there's more that comes afterward. So obviously some would argue the fact that it ends here means the book must have been written around this time. But on the other hand, if you think about, you know, the thesis that I was talking about of the book, the idea of the spread of Christianity from being a splinter sect of Judaism to becoming the religion of the Gentiles, it make sense to end with Paul in Rome “with full boldness and without hindrance”, right, because you end up in this like -
+
+Chris: Oh we need to talk about the dream. And so there’s a part before this that we skipped over a little bit. Is it Paul who has the dream or is it?
+
+Benito: Ah yes yes yes that’s Peter. 
+
+Chris: So the reason that Paul is sent to go, basically go to Rome and start preaching to the Romans, to the point where like 500 years later Christianity will be the official state religion of Rome. Is that Peter has a dream, and people don't like that Peter is taking this Messianic splinter sect of Judaism and bringing it to Gentiles and trying to convert them. Because they're not in the religion, they don't have the context, they don't have the background, and Peter's like “Check it, I had this dream though, and it actually was a prophecy.” In his room he has a vision of all the animals in the world being lured on a white sheet. I imagine them on the roof of a building. And God shows up, and he's like “Hey Peter, why don’t you snack on these animals?” And Peter's like “I mean, thanks but no thanks, I don't eat anything that is unclean because, you know, that’s scripture.” And that’s a buckwild thing to say to God, by the way.
+
+Benito: And God does reply, he's like “hey how dare you to tell me what's unclean, I'm telling you to go eat that bat”, or whatever, “go eat a bat, or a frog” 
+
+Chris: “Check out these pigs and shellfish”  
+
+Benito: “These very sweet hippopotamus steaks I have prepared for you” 
+
+Chris: So God says “What I have made can not be condemned, like, I made it I'm God, like it's okay.” And then Peter says that he sees this repeat three times, which I imagine is being like those bits in Dragon Ball Z where like, somebody gets hit and they show it like real-quick, real-quick, and then slow-mo, like the same action. So this is like, the final anime. 
+
+Benito: Yeah, for sure. And so, yeah. Of course, the metaphor here is the idea that the message of Christ is not just for the Jewish people. It's intended for the Greeks, as well the nations, and even though he would have shied away from that because he would have thought of those people as unclean, God is like “No man, I made this for everybody. I also made everybody. They're not unclean, you need to spread this message.” It is also often used as the justification for why most Christians do not follow dietary laws; they are not kosher, right, because here God lowered a big sheet full of bats and whales and whatever and told Peter to eat em. So if he's telling Peter to eat a metaphorical bat - 
+
+Chris: Hold on, hold on, wait. My guy, are you telling me that Peter, The Rock, upon whom the church is built, was like sitting there going like what do I need to do? I've got the message, you know, but how do I bring it to the masses? What do I do? And then he saw a bat, and said “yes Father”? 
+
+Benito: Yeah! 
+
+Chris: Peter might end up being my favorite. Naw it’s gonna be Festus. It’s gonna be Festus. It’s gonna be Porky Party. 
+
+Benito: And so anyway, yeah. There's your call-to-action right there, that's the turning point in the mission. And so yeah, you know, the message here of the book is like “Hey, wasn't this a Jewish thing? Why is it all Greeks and Romans now?” And the story shows, like, well we offered it to the Jews, and they were like “no thanks” and they killed all our dudes. And so we were like “What about these Greek boys?” And that's what happened. So yeah, I mean like, that's the message there, and it also kind of shows you got a foundation of anti-Semitism going all the way to the back. All the way back to the beginning.
+
+Chris: Yeah, I was really surprised at how often they kinda go like “oh, yea, The Jews” in this book. It seemed a little like, oh this is where it comes from, okay. 
+
+Benito: Right and so this actually ties into a thing I wanted to ask you about. Getting to the end of this book, reading it from front to back, as I know you did, multiple times -
+
+Chris: I took a highlight to it! 
+
+Benito: Nice. Very nice. Who did you take away as the main dudes of Christianity at the end of this book? If you had to narrow, like, whittle it down, who are the main dudes? 
+
+Chris: Okay, main dudes of Christianity. Obviously it's Peter and Paul. Those are the guys.
+
+Benito: Peter and Paul. They’re the two saints. Right, like, if you hear the phrase “two saints” somewhere, even, what's his name of the producer from Justice League, Joaquin Dos Santos, Johnny Two Saints. Right? Like, those are the two saints. Peter and Paul. If you go to Rome and you see two saints together, you know who those boys are, you know it's Peter, you know it’s Paul. They’re the guys. To quote Laser Swords: The Movie - “there is another”. There is another very significant Church leader who is basically minimized in the book of Acts, and that is James. Not James the Great, we do see James the Great, he is the first of the Apostles to get martyred, we see him get killed back in chapter 12, this is the one known as James the Just. And who exactly James the Just is is a matter of very debate. He could be James the Less, also James the son of Alphaeus that we saw one of the disciples - Apostles. But more likely, James the Just is also known as “James the Brother of God”, so potentially, James the brother of Jesus himself. That is obviously a matter of debate because Catholics believe in The Perpetual Virginity of Mary. They do not believe that Mary had any other children. Protestants, however, most as far as I'm aware do not have issue with interpreting the four brothers and multiple sisters of Jesus as being his literal, you know, full-blooded or whatever, brothers and sisters, and -
+
+Chris: Not know whole, right, half. 
+
+Benito: Right, half. There's a number of ways around this within Catholic tradition, there's not an official doctrine. It could be that James was Joseph’s son from a previous marriage and thus was older than Jesus, it could be that, some Catholics will teach that the word “brothers” means “cousin”, it doesn't matter. That’s a debate for when we get to the Book of James, right. The point is James the Just. We do see him in the book, he shows up a number of times. He’s the head of the church of Jerusalem, he’s the head of the, like, original Christian Church and thus he’s one of the most influential and important of the early Christians. His role is mega-downplayed in the book of Acts, and one of the reasons for that is he and Paul were at theological loggerheads. James is the head of the Church of Jerusalem, which was a much more traditional Jewish-focused guy. The Book of James that we see here that's an epistle here in the New Testament, that's very, it's notorious, I guess or infamous for the fact that it causes some trouble because it really focuses on the idea of “works” versus “faith”. So James has a more traditional Jewish perspective, he's focused on the idea of the law, and following the law, and that if you love God, you will follow his commandments, right, whereas Paul is all about, like, well faith comes first, if you have faith, then theoretically your actions will follow, right. So these guys were totally at loggerheads, and the fact that James is downplayed kind of makes sense when you realize that this book was potentially written by one of Paul’s best friends. So in a lot of ways, this book that we've read is pro-Paul propaganda. Prop-Paul-ganda. 
+
+Chris: So this is the origin of sola fide doctrine. 
+
+Benito: Yeah, that's a very Pauline kind of idea that you get later with Luther. Yeah, it's a very Paul idea for sure. 
+
+Chris: Which makes so much sense, for a guy who is defined by having a moment in which his faith has changed, that he then goes hard in the paint getting people in on it. Maintains pretty much the same actions. He does not encourage any further stonings that we know of in the book of Acts, but he certainly like, is, like, still operating, like wide-open, 100% at all times, no chill. So yeah that is the Book of Acts, everybody. Now there is some additional stuff that I think we're going to have to get to in another episode, when we dive into the expanded universe, aka the Apocrypha. We're going to see these two boys come back in the acts of Peter and Paul, which is the apocryphal book which has the return, and one of the deaths of, Simon Magus. That’s right. Your favorite minor villain is going to make his way back, and believe me when I tell you it’s dope. 
+
+Benito: Yeah, it really is. And despite being an apocryphal book the acts of Peter and Paul is hugely influential on Christian belief and depictions in art. And we’ll learn that, as the more we look at apocryphal books, we’ll see that even though these things didn't make the cut, it didn’t mean that people didn't still believe in them and take a lot of things away from them. 
+
+Chris: Keep in mind, that’s 300 years of teachings, plus another couple hundred years it took to make its way around. It's not like they just, you know, tossed them all into the fire. The stories still existed, not to mention all the stories of saints that came after in the early days and then in the Middle Ages after the collapse of the empire. The Western Roman Empire. The Eastern Roman Empire, we all know, is maintained for another thousand years.
+
+Benito: That’s correct, very good. 
+
+Chris: Look, like I said, I like history. I’m just not great at the Bible. Now if we were smart, or doing this properly, we would probably dive into the acts of Peter and Paul next time. Next time. Because that is a direct sequel to Acts. Instead, we're not doing that. What we're going to do in this podcast going forward is, we’re probably going to alternate between New Testament books and Old Testament books, at least until we run out of New Testament books, we’ll probably mix the Apocrypha in there somewhere. So next time you hear us talking about the New Testament, maybe it'll be Romans, maybe it'll be acts of Peter and Paul, and we'll get into that stuff. But next time we are together for another service we will be getting into a book that I picked, Benito, you picked this one, our second book was my pick, and we'll be reading Daniel, because it has a story I know. 
+
+Benito: Right. And little did you know what you were really picking. 
+
+Chris: Yeah, it’s pretty good. So if you would like to read along with us, once again, it's the Bible. It's available pretty much everywhere. You can check it out on Bible Gateway if you're interested in a specific translation. Again, we're using the Holman Christian Standard Bible but if you want to read along in The New International Version, King James, those are much more easy to find but it's all online at Bible Gateway. And other websites. But before we get out of here, do you have a favorite verse from, a favorite excerpt, from the scripture?
+
+Benito: For sure, my particular favorite story and bit from the book of Acts comes in Chapter 19 Verse 13 where we see a host of itinerant professional exorcists going around, casting out demons in the name of Jesus, who they don't even know who Jesus is, they’re basically using his name like a magic word. And they’re the Seven Sons of Sceva, and when they cast out the demon “The evil spirit answered them, “I know Jesus, and I recognize Paul—but who are you?” Then the man who had the evil spirit leaped on them, overpowered them all, and prevailed against them, so that they ran out of that house naked and wounded.” 
+
+Chris: That definitely seems like Paul throwing in “by the way they also knew me. By the way I am the Captain America of this situation. Not a founder, but the most important of the early days, obviously.” My reading is going to come from the section on Simon Magus its chapter 8 verse 21 through 23, and I should say that I said this a couple weeks ago, which is forever in internet time, there was that “Brooklyn Barbecue is taking over the world” article, and as a Southerner, that was anathema to me, so when my wife showed it to me, I said to her, or I said to the creators of Brooklyn BBQ, “You have no part or share in this matter, because your heart is not right before God. Therefore repent of this wickedness of yours, and pray to the Lord that the intent of your heart may be forgiven you. For I see you are poisoned by bitterness and bound by iniquity.” 
+
+Benito: Preach. 
+
+Chris: And I think it says a lot that your favorite verse in Acts was about itinerant professional exorcists, and mine is someone yelling at another one for being bound by iniquity. Alright that’s it for the first episode of Apocrypals, join us next time for the book of Daniel. We’ll see you then. And until then, I have been Chris Sims, with Benito Cereno. Benito, peace be with you.
+
+Benito: And also with you.
